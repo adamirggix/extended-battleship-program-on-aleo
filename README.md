@@ -1,3 +1,5 @@
+My discord nickname - adamriggiexfo
+
 <!-- # Leo Battleship 🏴‍☠️ -->
 
 - [Summary](#summary)
